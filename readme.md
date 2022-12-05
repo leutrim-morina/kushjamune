@@ -1,0 +1,1 @@
+Ky është prezantimi im 
